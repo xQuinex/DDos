@@ -1,0 +1,2 @@
+# DDos
+EĞİTİM ODAKLI YAPIMIŞTIR!!!!
